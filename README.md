@@ -1,0 +1,1 @@
+# bitirme-tezi-2023-haziran
